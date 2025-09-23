@@ -1,16 +1,21 @@
-## Hi there 👋
+# :)
 
-<!--
-**forsynthielle/forsynthielle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+evening
 
-Here are some ideas to get you started:
+im nameless - best calling me by the charcs im cosplayins names or simply 'rio'
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+he/they usually
+
+15
+
+a russian wannabe(acually thai)
+
+multifandom, my favs blood debt
+
+i kinda draw wtv i want, both sfw and nsfw
+
+i have a very crude humour tht may ivloves sexual/offensive remarks if i got too comfortable so iwec it is
+
+im fine w any ships as long as yall chill, pro/dark/wtvships neutral for me
+
+im not rly into pt cuddling, mostly more into hiding ykyk or js sit next to another
