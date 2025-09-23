@@ -10,9 +10,7 @@ he/they usually
 
 a russian wannabe(acually thai)
 
-multifandom, my favs blood debt
-
-i kinda draw/say wtv i want, both sfw and nsfw
+multifandom, my favs blood debt althou i suck so bad at the gameplay
 
 i have a very crude humour tht may ivloves sexual/offensive remarks if i got too comfortable so iwec it is
 
