@@ -1,19 +1,15 @@
-# :)
+hi, evening
 
-evening
+im mostly nameless - best calling me by the charcs im cosplayins names or simply 'rio'
 
-im nameless - best calling me by the charcs im cosplayins names or simply 'rio'
-
-he/they usually
+he/him preferred
 
 15
 
-a russian wannabe(acually thai)
+multifandom, my favs blood debt
 
-multifandom, my favs blood debt althou i suck so bad at the gameplay
+i have a very crude humour that may involves sexual/offensive remarks if i got too comfortable so iwec it is
 
-i have a very crude humour tht may ivloves sexual/offensive remarks if i got too comfortable so iwec it is
+im fine w any shippings as long as yall chill, pro/dark/wtvships ok..
 
-im fine w any ships as long as yall chill, pro/dark/wtvships neutral for me
-
-im not rly into pt cuddling, mostly more into hiding ykyk or js sit next to another
+not rlly into cuddling or such, but its alr - we can sit tg
