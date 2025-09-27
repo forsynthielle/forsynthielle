@@ -8,7 +8,7 @@ he/him preferred
 
 multifandom, my favs blood debt
 
-i have a very crude humour that may involves sexual/offensive remarks (ex: genders, races) if i got too comfortable so iwec it is
+i have a very crude humour that may involves sexual/offensive remarks (ex: genders, races) and oftentimes neglect using tonetags if i got too comfortable so iwec it is
 
 ^ uncomfortable? tell me, easy
 
