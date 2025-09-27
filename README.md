@@ -8,9 +8,9 @@ he/him preferred
 
 multifandom, my favs blood debt
 
-i have a very crude humour that may involves sexual/offensive remarks (ex: genders, races) and oftentimes neglect using tonetags if i got too comfortable so iwec it is
+i have a very crude humour that may involves sexual/offensive remarks (ex: genders, races) and neglect using tonetags if i got too comfortable so iwec it is
 
-^ uncomfortable? tell me, easy
+^ not into ur taste? tell me, easy
 
 im fine w any shippings as long as yall chill, pro/dark/wtvships ok..
 
