@@ -15,3 +15,7 @@ i have a very crude humour that may involves sexual/offensive remarks (ex: gende
 im fine w any shippings as long as yall chill, pro/dark/wtvships ok..
 
 not rlly into cuddling or such, but its alr - we can sit tg
+
+
+
+extras; idont accept gifts?!!!!
