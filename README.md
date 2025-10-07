@@ -8,7 +8,7 @@ he/him preferred
 
 multifandom, my favs blood debt
 
-i have a very crude humour that may involves sexual/offensive remarks (ex: genders, races) if i got too comfortable and i also neglect using tonetags so iwec it is <- not into ur taste? tell me, easy
+i have a very crude humour that may involves sexual/offensive remarks (ex: genders, races) if i got too comfortable and i also neglect using tonetags so iwec it is <- ~~not into ur taste? tell me, easy~~ NEVERMIND I DONT CARE ABOUT YOUR OPINIONS ANYMORE JUST GET AWAY AND PISS OFF YOU FUCKING NITWIT BEINGS
 
 im fine w any shippings as long as yall chill, pro/dark/wtvships ok..
 
