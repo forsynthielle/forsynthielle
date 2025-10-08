@@ -1,6 +1,6 @@
 hi, evening
 
-im mostly nameless - best calling me by the charcs im cosplayins names or simply 'rio'
+im mostly nameless - best calling me by the charcs im cosplayins names or simply 'rio' (unsure)
 
 he/him preferred
 
