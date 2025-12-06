@@ -16,4 +16,4 @@ not rlly into cuddling or such, but its alr - we can sit tg
 
 idont accept gifts
 
-dnis; overly sensitiveass ppl, cambodians (yes im srs), antis, wtv
+dnis; overly sensitive ppl, cambodians (yes im srs), or wtv idkk kdkk. .k.k .. .,....,..,
